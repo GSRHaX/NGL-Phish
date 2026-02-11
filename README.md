@@ -1,8 +1,8 @@
 # NGL - Nefariously Generated Links 😈🔗
 
-**Note:** Please wait until the application is fully rewritten in React and Snapchat functionality is added. Stay tuned for updates.
+**Note:** I took this sh*t down cuz u ppl were being mad creepy with ppl's accounts 💀 
 
-**Remember: Ethical behavior in cybersecurity research is paramount. Use this tool responsibly and with the highest regard for legal and ethical standards.**
+
 
 <p align="center">
   <img width="400px" src="https://raw.githubusercontent.com/gsrhax/NGL-Not-Good-Links/main/imgs/ngl-phish.png"/>
