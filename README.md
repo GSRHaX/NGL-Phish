@@ -1,6 +1,6 @@
 # NGL - Nefariously Generated Links 😈🔗
 
-**Note:** I took this sh*t down cuz u ppl were being mad creepy with ppl's accounts 💀 
+#### **Note:** I took this sh*t down cuz u ppl were being mad creepy with ppl's accounts 💀 
 
 
 
