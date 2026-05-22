@@ -1,6 +1,9 @@
 # NGL - Nefariously Generated Links 😈🔗
 
+### 200 stars I'll bring it back WITH SOME RESTRICTIONS ⭐
 #### **Note:** I took this sh*t down cuz u ppl were being mad creepy with ppl's accounts 💀 
+
+
 
 
 
